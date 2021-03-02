@@ -1,2 +1,2 @@
-# carpintyeriagirabrl
+# carpinteriagirabel
 pagina para ayudar
